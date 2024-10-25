@@ -11,6 +11,7 @@
 - 
 - 📫 How to reach me ...
 - bmf124@miami.edu
+- brandonmarco19@icloud.com
 - 
 - 😄 Pronouns: ...
 - He/Him
